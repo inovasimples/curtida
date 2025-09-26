@@ -1,0 +1,2 @@
+# curtida
+marketing Ganha-Ganha
